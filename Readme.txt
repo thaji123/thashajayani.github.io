@@ -1,4 +1,5 @@
-Thanks for downloading this template!
+yeah yeah yeah 
+Thashajayani's portfolio made from a template
 
 Template Name: Personal
 Template URL: https://bootstrapmade.com/personal-free-resume-bootstrap-template/
